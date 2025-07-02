@@ -1,5 +1,5 @@
 ## 👋🚀 About Me
-My name is Wiktor and I'm a student of Computer Science.
+Hello! My name is Wiktor and I'm a Computer Science graduate.
 
 
 ## 🔗 Links
